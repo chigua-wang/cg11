@@ -2,9 +2,9 @@
 吃瓜网-黑料正能量-黑料不打烊-黑料老司机-黑料网-黑料不打烊万里长征网址
 
 ----
-[🔞🌏点击进入官网【cg588.com】🌏🔞](https://chigua-wang.github.io/cg51/)
+[🔞🌏点击进入官网【cg588.com】🌏🔞](https://chigua-wang.github.io/cg11/)
 ----
-[🔞🌏点击进入官网【cg589.com】🌏🔞](https://chigua-wang.github.io/cg51/)
+[🔞🌏点击进入官网【cg589.com】🌏🔞](https://chigua-wang.github.io/cg11/)
 ----
 <h3>【瓜棚团】更新时间：2024年12月3日</h3>
 
